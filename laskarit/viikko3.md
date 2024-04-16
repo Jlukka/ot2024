@@ -1,0 +1,1 @@
+ööh nyt loppu aika, anyways aion jatkaa tätä tulevina tunteina pls älkää dropatko kurssilta tää on paljon enemmän valmis ens viikolla
